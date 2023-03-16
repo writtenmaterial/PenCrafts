@@ -1,0 +1,18 @@
+input: .
+output: .retype
+favicon: /assets/branding/logo.png
+meta:
+  title: " | PenCrafts"
+  image: /assets/branding/banner-discord.png
+url: https://writtenmaterial.github.io/pencrafts/
+branding:
+  logo: /assets/branding/logo.png
+  label: PenVerse
+links:
+- text: Home
+  link: https://writtenmaterial.github.io/pencrafts/
+- text: Connect
+  link: https://discord.com/invite/6EpX2eK4CX
+  
+footer:
+  copyright: "&copy; Copyright {{ year }}. All rights reserved."
