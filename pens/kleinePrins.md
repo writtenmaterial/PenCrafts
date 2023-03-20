@@ -1,5 +1,5 @@
 ---
-order: 900
+order: 850
 icon: dot-fill
 label: De Kleine Prins
 author:
