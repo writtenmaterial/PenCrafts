@@ -8,8 +8,8 @@ author:
 tags: [module]
 ---
 
-### What to expect from this pen
-A man who becomes consumed by his alcoholism and ultimately commits murder. The story is told from the perspective of the narrator, who was once a kind and gentle person, but over time has become increasingly cruel and abusive to both his wife and pets. He becomes particularly attached to a black cat named Pluto, but after a night of heavy drinking, he gouges out the cat's eye in a fit of rage. Eventually, the narrator's cruelty escalates to the point where he hangs the cat from a tree, and the cat ends up dying. But soon after, the narrator begins to see the cat's ghost everywhere he goes, and eventually he becomes so consumed by guilt that he confesses his crime to the police. The story ends with the narrator about to be hanged for his crime, but not before he sees the ghost of the black cat one last time.
+### Wat kunt u van deze pen verwachten
+"De Kleine Prins" is een novelle van Antoine de Saint-Exupéry die het verhaal vertelt van een jonge prins die van planeet naar planeet reist en verschillende bewoners ontmoet, waaronder een koning, een ijdele man, een dronkaard, een zakenman en een geograaf. Door deze ontmoetingen leert de prins waardevolle lessen over het leven, de liefde en de menselijke aard. Het boek is een reflectie op de complexiteit van volwassenheid en het belang om de verwondering en verbeelding van de kindertijd te behouden. Verwacht te worden betoverd door de grillige charme en subtiele wijsheid van het boek.
 
 ---
 
