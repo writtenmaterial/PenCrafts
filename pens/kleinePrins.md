@@ -41,6 +41,7 @@ tekening no. 1, die ik altijd bewaard heb. Ik wilde weten, of hij werkelijk begr
 antwoord was altijd: ''t Is een hoed'. Dan sprak ik maar niet meer over boa constrictors of 
 oerwouden of over de sterren. Ik richtte me naar hem en sprak over bridge, golf, politiek en dassen. 
 En de grote mens vond het plezierig om kennis te maken met zo 'n verstandig man. 
+
 //2     —   Zo leefde ik dus alleen, zonder ooit met iemand echt te kunnen praten, totdat ik op een keer, zes 
 jaar geleden, motorpech kreeg in de Sahara-woestijn. Er was iets stuk gegaan binnen in mijn motor, 
 en omdat ik geen mecanicien en ook geen passagiers aan boord had moest ik proberen om 
@@ -50,8 +51,8 @@ zand, wel duizend mijl ver van de bewoonde wereld. Ik was veel eenzamer dan een
 schipbreukeling op een vlot midden op de oceaan. Je kunt je dus voorstellen, hoe verrast ik was bij 
 het aanbreken van de dag, toen een grappig klein stemmetje me wekte. 
 Het zei: 'Toe, teken eens 'n schaap voor me.' 
-- Hé? 
-- Teken eens 'n schaap voor me. 
+— Hé? 
+— Teken eens 'n schaap voor me. 
 Ik sprong op, alsof ik door de bliksem getroffen was - wreef mijn ogen uit en keek eens goed. En ik 
 zag een héél uitzonderlijk klein kereltje, dat me ernstig aankeek. Kijk, dit is het beste portret, dat ik 
 later van hem heb kunnen maken (Tekening nummer 4). Maar mijn tekening is natuurlijk véél 
@@ -77,19 +78,20 @@ Teken nou een schaap voor me.'
 Toen tekende ik het dan maar (tekening nummer 5). Hij bekeek het aandachtig en zei: 'Nee, dat 
 schaap is nú al zo ziek. Maak er nog maar een.' 
 Ik tekende (tekening nummer 6). Mijn vriendje lachte vriendelijk en toegeeflijk. 
-- Je ziet toch wel dat dat geen schaap is: 't is een ram, hij heeft horens... 
+— Je ziet toch wel dat dat geen schaap is: 't is een ram, hij heeft horens... 
 Nog eens maakte ik mijn tekening over. Maar die werd ook al geweigerd, net als de vorigen. 
-- Die is te oud. Ik wil een schaap, dat lang blijft leven. 
+— Die is te oud. Ik wil een schaap, dat lang blijft leven. 
 Toen werd ik ongeduldig, want ik wilde gauw beginnen mijn motor uit elkaar te halen. Ik maakte dit 
 krabbeltje (tekening nummer 7) en zei: 'Dat is de kist. Je schaap zit erin.' Tot mijn verbazing zag ik 
 het gezicht van mijn kleine kunstcriticus stralen. 
-- Ja, zo wilde ik 't precies hebben! 
-- Denk je dat het schaap veel gras nodig heeft? 
-- Waarom? 
-- Omdat ik maar een héél klein tuintje heb. 
-- Dat zal best gaan. Ik heb je een héél klein schaapje gegeven. 
+— Ja, zo wilde ik 't precies hebben! 
+— Denk je dat het schaap veel gras nodig heeft? 
+— Waarom? 
+— Omdat ik maar een héél klein tuintje heb. 
+— Dat zal best gaan. Ik heb je een héél klein schaapje gegeven. 
 Hij boog z'n hoofd over de tekening: 'Zo piepklein is het nu ook weer niet... Hé! Het is ingeslapen...' 
 En dat was dan mijn kennismaking met de kleine prins. 
+
 //3     —   Ik had een hele tijd nodig om te begrijpen waar hij vandaan kwam. De kleine prins ondervroeg mij 
 voortdurend maar scheen mijn vragen nooit te horen. Pas langzamerhand, door toevallig 
 gesproken woorden, is het mij alles duidelijk geworden. Zo vroeg hij, toen hij voor het eerst mijn 
@@ -98,7 +100,7 @@ vliegtuig zag (ik zal het maar niet uittekenen, dat is me veel te moeilijk): 'Wa
 En ik was er een beetje trots op hem te vertellen, dat ik kon vliegen. 
 Toen riep hij uit: ' Maar dan ben je uit de hemel gevallen!' 
 'Ja', zei ik bescheiden. 
-- Nee maar, dat is gek... 
+— Nee maar, dat is gek... 
 En de kleine prins lachte zo grappig, dat bij me erg boos maakte. Ik stel er prijs op dat men mijn 
 ongeluk ernstig opneemt. Toen zei hij weer: 'Dus dan kom jij ook uit de hemel! Van welke planeet?' 
 Meteen begreep ik, dat dit een beetje licht zou werpen op de geheimzinnigheid van zijn 
@@ -108,19 +110,20 @@ daarmee kom je natuurlijk niet van ver...' En een hele tijd was hij in gepeins v
 hij mijn schaap uit zijn zak en bekeek zijn schat met diepe aandacht. Je begrijpt wel hoe 
 nieuwsgierig ik was geworden door die vage aanduiding van 'de andere planeten'. Ik trachtte 
 daarover dus meer te weten te komen. 
-- Waar kom je vandaan, klein kereltje? En waar is je 'thuis'? Waarheen wil je je schaap meenemen? 
+— Waar kom je vandaan, klein kereltje? En waar is je 'thuis'? Waarheen wil je je schaap meenemen? 
 Na een lang, peinzend stilzwijgen antwoordde hij: 'Weet je wat mooi uitkomt? Met die kist die je me 
 gegeven hebt, heeft het schaap meteen een huisje voor de nacht.' 
-- Natuurlijk. En als je lief bent, zal ik ook een touw geven om het overdag vast te leggen. Met een 
+— Natuurlijk. En als je lief bent, zal ik ook een touw geven om het overdag vast te leggen. Met een 
 paaltje. 
 Dit vond hij blijkbaar een vreemd plan. 
-- Vastbinden! Wat een gek idee. 
-- Maar als je hem niet vastbindt, loopt hij weg en verdwaalt... 
+— Vastbinden! Wat een gek idee. 
+— Maar als je hem niet vastbindt, loopt hij weg en verdwaalt... 
 Toen schaterde hij het weer uit. 
-- Maar waar moet hij heen? 
-- Zo maar ergens. Rechtuit... 
+— Maar waar moet hij heen? 
+— Zo maar ergens. Rechtuit... 
 Toen zei de prins ernstig: 'Dat doet er niets toe. Bij mij thuis is het allemaal zo klein!' En een beetje 
 verdrietig misschien voegde hij eraan toe: 'Rechtuit kom je niet erg ver...' 
+
 //4     —   Zo was ik dan weer achter iets heel belangrijks gekomen: de planeet waar hij vandaan kwam, was 
 niet veel groter dan een huis! Dat hoefde me ook niets te verbazen. Ik wist wel, dat er behalve de 
 grote planeten zoals de Aarde, Jupiter, Mars en Venus, die namen hebben, nog honderden 
@@ -162,12 +165,13 @@ op mijn gevoel af, op goed geluk. En ik vergis me in belangrijke bijzonderheden.
 niets aan doen. Mijn vriend gaf nooit uitleg. Hij dacht misschien dat ik was zoals hij. Maar helaas 
 kan ik niet een schaap door een kist heen zien. Misschien lijk ik een beetje op de grote mensen. Ik 
 ben zeker oud geworden. 
+
 //5     —   Iedere dag hoorde ik wat meer over de planeet, zijn vertrek en over de reis. Het kwam er zo zoetjes 
 aan uit, een opmerking hier en een woordje daar. Zo hoorde ik op de derde dag het drama van 
 de apebroodbomen. Het schaap was alweer de aanleiding, want ineens vroeg de kleine prins me, 
 alsof hij in grote onzekerheid verkeerde: 'Het is toch waar hé, dat schapen heesters eten?' 
-- Ja zeker is dat waar. 
-- Hé, daar ben ik blij om. 
+— Ja zeker is dat waar. 
+— Hé, daar ben ik blij om. 
 Ik begreep niet precies, waarom het zo belangrijk was, dat schapen heesters eten. 
 Maar hij vervolgde: 'Dus dan eten ze ook apebroodbomen?' 
 Ik merkte op, dat apebroodbomen geen heesters zijn maar bomen zo groot als kerken en dat zelfs 
@@ -206,12 +210,13 @@ Misschien zal men vragen: waarom staan er in dit boek niet méér zulke mooie gr
 van de apebroodbomen? Daarop is het antwoord nogal eenvoudig: ik heb het geprobeerd, maar 
 het is me niet gelukt. Bij het tekenen van de apebroodbomen was ik bezield door het besef van 
 mijn dringende taak. 
+
 //6     —   Ach, kleine prins, zo heb ik langzamerhand je droefgeestige leventje leren begrijpen. Lange tijd 
 had je geen andere afleiding dan het ondergaan van de zon. Dat hoorde ik de vierde dag, toen 
 je zei: 'Ik houd erg van zonsondergangen. Laten we een zonsondergang gaan zien...' 
-- Maar dan moeten we wachten. 
-- Waarop wachten? 
-- Wachten totdat de zon ondergaat. 
+— Maar dan moeten we wachten. 
+— Waarop wachten? 
+— Wachten totdat de zon ondergaat. 
 Je keek eerst erg verbaasd en toen moest je om jezelf lachen en zei: 'Ik denk nog altijd dat ik thuis 
 ben!' 
 Nu zit het inderdaad zo, dat als het in Amerika twaalf uur 's middags is, de zon in Frankrijk 
@@ -223,17 +228,18 @@ keer zien ondergaan!' En later zei je nog: 'Weet je, als je zó bedroefd bent, d
 ondergaan...' 
 'En was je die dag van drieënveertig keer dan zó bedroefd?' 
 Maar de kleine prins antwoordde niet. 
+
 //7     —   En dat geheim van de kleine prins werd mij de vijfde dag duidelijk, alweer dankzij het schaap. 
 Plotseling vroeg hij me, als had hij er lang in stilte over nagedacht: 'Als een schaap heesters eet, eet 
 het dan ook bloemen?' 
-- Een schaap eet alles wat het tegenkomt. 
-- Ook bloemen met doornen? 
-- Ja, ook bloemen met doornen. 
-- Maar waar dienen die doornen dan voor? 
+— Een schaap eet alles wat het tegenkomt. 
+— Ook bloemen met doornen? 
+— Ja, ook bloemen met doornen. 
+— Maar waar dienen die doornen dan voor? 
 Werkelijk, ik wist het niet. Ik had het juist erg druk met het losschroeven van een bout in de motor, 
 die te stijf was aangedraaid. Ik maakte me zorgen, want de machinestoring begon me steeds 
 ernstiger te lijken en het drinkwater raakte op, zodat ik het ergste vreesde. 
-- Waarvoor zijn de doornen? 
+— Waarvoor zijn de doornen? 
 De kleine prins hield altijd vast aan een vraag, als hij die eenmaal gesteld had. Maar ik was 
 geprikkeld door die bout en zei maar wat: 'Doornen dienen nergens voor - dat is louter 
 ondeugendheid van de bloemen.' 
@@ -243,21 +249,21 @@ doornen...'
 Ik antwoordde niet. Op dat moment dacht ik bij mezelf: 'Als die bout nu niet meegeeft, moet ik 
 hem losslaan met de hamer.' 
 De kleine prins verstoorde mijn gedachten weer: 'En jij denkt dus, dat de bloemen...' 
-- Och nee, helemaal niet! Ik denk helemaal niets. Ik heb maar wat gezegd. Ik heb ernstiger dingen 
+— Och nee, helemaal niet! Ik denk helemaal niets. Ik heb maar wat gezegd. Ik heb ernstiger dingen 
 omhanden! 
 Hij keek me verbaasd aan. 
-- Ernstiger dingen! 
+— Ernstiger dingen! 
 Hij zag me daar staan met de hamer in de hand en mijn vingers zwart van de smeerolie, gebogen 
 over iets, dat hij héél lelijk vond. 
-- Nu spreek je net als de grote mensen! 
+— Nu spreek je net als de grote mensen! 
 Ik schaamde me wel een beetje, maar streng ging hij door: 'Je bent in de war. Je haalt alles door 
 elkaar!' Hij was werkelijk heel boos en schudde zijn gouden haar in de wind. 
-- Ik weet een planeet, waar een vuurrode meneer woont. Hij heeft nooit aan een bloem geroken, 
+— Ik weet een planeet, waar een vuurrode meneer woont. Hij heeft nooit aan een bloem geroken, 
 nooit naar een ster gekeken. Hij heeft nooit van iemand gehouden maar altijd alleen maar 
 optelsommen gemaakt. En net als jij zegt hij de hele dag: 'Ik ben een ernstig man. Ik ben een 
 ernstig man.' En dan zwelt hij van trots. Maar dat is geen man, dat is een paddestoel! 
-- Wat zeg je? 
-- Een paddestoel! 
+— Wat zeg je? 
+— Een paddestoel! 
 Hij was nu bleek van drift. 
 'Sinds miljoenen jaren krijgen de bloemen doornen. En sinds miljoenen jaren eten de schapen toch
 die bloemen op. En is het dan geen ernstige bezigheid om te trachten te begrijpen, waarom ze 
@@ -279,6 +285,7 @@ van houdt loopt geen gevaar... ik zal een muilkorf tekenen voor je schaap... en 
 voor je bloem ... Ik zal...' 
 Ik wist niet precies wat ik moest zeggen en voelde me heel onhandig. Ik wist niet hoe ik hem kon 
 bereiken, hoe ik weer bij hem kon komen... Het tranenland is zo geheimzinnig... 
+
 //8     —   Al gauw kwam ik meer te weten over die bloem. Op de planeet van het prinsje waren altijd heel 
 eenvoudige bloemen geweest, met één enkele rij bloemblaadjes, zij namen weinig plaats in en 
 maakten het niemand lastig. Op een ochtend verschenen zij in het gras en verwelkten dan 's 
@@ -295,7 +302,7 @@ dagenlang geduurd. En eindelijk op een ochtend, juist bij zonsopgang, had ze zic
 nadat ze zo alles in de puntjes gedaan had, gaapte ze en zei: 'Hé, ik word net wakker... Neem me 
 niet kwalijk... Mijn kapsel is nog helemaal in de war...' 
 Toen kon de kleine prins zijn bewondering niet meer bedwingen. 
-- Wat bent u mooi! 
+— Wat bent u mooi! 
 'Ja, vind je niet', antwoordde de bloem zachtjes. 'En ik ben tegelijk met de zon geboren...' 
 De kleine prins vermoedde wel, dat ze niet zo erg bescheiden was, maar ze was zo ontroerend! 
 'Het is tijd om te ontbijten, geloof ik', had ze al gauw gezegd, 'zoudt u misschien aan me willen 
@@ -307,17 +314,17 @@ opkomen, de tijgers met hun klauwen!'
 'Er zijn geen tijgers op mijn planeet,' had de kleine prins geantwoord; 'bovendien eten tijgers geen 
 gras.' 
 'Ik ben ook geen gras', antwoordde de bloem zacht. 
-- Neemt u me niet kwalijk... 
-- Voor tijgers ben ik niet bang, maar ik heb een hekel aan tocht. Hebt u niet een kamerscherm? 
+— Neemt u me niet kwalijk... 
+— Voor tijgers ben ik niet bang, maar ik heb een hekel aan tocht. Hebt u niet een kamerscherm? 
 'Een hekel aan tocht... dat valt niet mee voor een plant', had de kleine prins gezegd. Wat een 
 ingewikkelde bloem... 
-- En 's avonds zet u me maar onder een stolp. Het is erg koud bij u, en slecht ingericht. Daar waar ik 
+— En 's avonds zet u me maar onder een stolp. Het is erg koud bij u, en slecht ingericht. Daar waar ik 
 vandaan kom... 
 Maar toen had ze ineens gezwegen, Ze was immers als zaadje gekomen en kon dus nooit iets 
 weten van andere werelden. Vol schaamte, dat ze zich zo kinderachtig in de kaart had laten 
 kijken, kuchte ze een paar maal om de kleine prins te laten voelen dat hij in gebreke was. 
-- Dat kamerscherm?... 
-- Ja, ja ik wilde het net gaan halen maar u sprak nog tegen me. 
+— Dat kamerscherm?... 
+— Ja, ja ik wilde het net gaan halen maar u sprak nog tegen me. 
 Toen had ze haar kuch nog wat aangedikt om hem toch een beetje berouw te laten voelen. En zo 
 was de kleine prins, ondanks zijn goede wil en zijn liefde, al gauw aan haar gaan twijfelen. Hij had 
 een paar onbelangrijke woorden veel te ernstig opgevat en was daardoor heel ongelukkig 
@@ -330,6 +337,7 @@ En hij vervolgde: 'Ik heb er toen niets van begrepen! Ik had haar moeten beoorde
 daden en niet naar haar woorden. Ze verspreidde geur en glans. Ik had nooit moeten weglopen. Ik 
 had de tederheid moeten voelen achter haar armzalige streken. Bloemen spreken zichzelf altijd 
 tegen. Maar ik was nog te jong om van haar te kunnen houden.' 
+
 //9     —   Ik denk dat hij ontsnapte met een groep wilde trekvogels. Voor zijn vertrek maakte hij die ochtend 
 zijn planeet keurig in orde. Zorgvuldig veegde hij de kraters van de werkende vulkanen. Twee 
 vulkanen in werking had hij en dat was erg gemakkelijk om 's morgens het ontbijt op klaar te 
@@ -346,19 +354,20 @@ De bloem kuchte, maar nu niet van verkoudheid. 'Ik heb me dwaas aangesteld', zei
 'Vergeef het me maar en tracht gelukkig te worden.' 
 Het verbaasde hem, dat ze hem geen verwijten maakte. Hij was helemaal van de wijs en bleef 
 maar staan met de stolp in zijn hand. Van die rustige vriendelijkheid begreep hij niets. 
-- 'Ja zeker, ik houd van je', zei de bloem. 'Je hebt dat nooit geweten door mijn eigen schuld. Het 
+— 'Ja zeker, ik houd van je', zei de bloem. 'Je hebt dat nooit geweten door mijn eigen schuld. Het 
 doet er niet toe. Maar jij hebt al net zo dwaas gedaan als ik. Probeer gelukkig te worden laat die 
 stolp maar. Die wil ik niet meer.' 
-- Maar die wind... 
-- Nu ja, zó verkouden ben ik nu ook weer niet... De frisse nachtlucht zal me goed doen. Ik ben 
+— Maar die wind... 
+— Nu ja, zó verkouden ben ik nu ook weer niet... De frisse nachtlucht zal me goed doen. Ik ben 
 tenslotte een bloem. 
-- Maar die dieren dan... 
-- Een paar rupsen zal ik wel moeten verdragen, als ik ooit vlinders wil zien. Die schijnen zo prachtig 
+— Maar die dieren dan... 
+— Een paar rupsen zal ik wel moeten verdragen, als ik ooit vlinders wil zien. Die schijnen zo prachtig 
 te zijn. En wie zal er verder op bezoek komen? Jij bent weg. En voor de grote dieren ben ik niet 
 bang. Ik heb mijn klauwen. 
 Kinderlijk spreidde ze haar doornen uit en zei toen: 'Blijf nu niet zo hangen; dat maakt me kriebelig. 
 Je hebt nu besloten te gaan. Ga dan ook.' 
 Want ze wilde niet dat hij haar zag huilen. Ze was een erg trotse bloem... 
+
 //10     —   Hij was in de buurt van de asteroïden 325, 326, 327, 328, 329 en 330. Die bezocht hij dus het eerst 
 om er een bezigheid te zoeken en om wat te leren. Op de eerste woonde een koning. Hij was in 
 purper en hermelijn gekleed en zat op een eenvoudige maar toch heel statige troon. 
@@ -389,24 +398,24 @@ hermelijnen mantel. Toch was de kleine prins verbaasd. De planeet was heel klein
 regeerde de koning eigenlijk? 
 'Sire', zei hij, 'neemt u me niet kwalijk dat ik u wat vraag...' 
 'Ik beveel je mij vragen te stellen', zei de koning vlug. 
-- Sire, waarover regeert u? 
+— Sire, waarover regeert u? 
 'Over alles', zei de koning eenvoudigweg. 
-- Over alles? 
+— Over alles? 
 Met een bescheiden gebaar wees de koning op zijn eigen planeet, op de andere planeten en op 
 de sterren. 
-- Over dat alles? 
+— Over dat alles? 
 'Over dat alles...', antwoordde de koning. Want hij was niet alleen een absoluut maar ook een 
 algemeen heerser. 
-- En doen de sterren wat u zegt? 
-- Ja natuurlijk, stipt. Ongehoorzaamheid verdraag ik niet. 
+— En doen de sterren wat u zegt? 
+— Ja natuurlijk, stipt. Ongehoorzaamheid verdraag ik niet. 
 De kleine prins stond verbaasd over zoveel macht. Als hij die macht zelf had, zou hij op één dag 
 niet alleen vierenveertig maar wel tweeënzeventig of zelfs honderd of tweehonderd keer de zon 
 kunnen zien ondergaan, zonder dat hij ooit zijn stoel hoefde te verzetten. Hij werd een beetje 
 verdrietig bij de herinnering aan zijn eigen kleine planeet die daar nu verlaten lag en daarom 
 durfde hij de koning een gunst te vragen: 
-- Ik wilde zo graag een zonsondergang zien... doet u me een plezier en beveelt u de zon om onder 
+— Ik wilde zo graag een zonsondergang zien... doet u me een plezier en beveelt u de zon om onder 
 te gaan… 
-- Als ik een generaal beval van de ene bloem naar de andere te fladderen als een vlinder, of een 
+— Als ik een generaal beval van de ene bloem naar de andere te fladderen als een vlinder, of een 
 treurspel te schrijven of zich in een watervogel te veranderen, en als dan die generaal het bevel 
 niet uitvoerde, wie zou dan ongelijk hebben, hij of ik? 
 'Natuurlijk u', zei de kleine prins zonder aarzelen. 
@@ -421,21 +430,21 @@ omstandigheden gunstig zijn. '
 een minuut of tien over half acht. En dan zul je eens zien hoe stipt ik gehoorzaamd word.' 
 De kleine prins gaapte. Het speet hem van de zonsondergang en hij verveelde zich ook al een 
 beetje. 
-- Ik heb hier eigenlijk niets meer te doen. Ik zal maar weer weggaan! 
+— Ik heb hier eigenlijk niets meer te doen. Ik zal maar weer weggaan! 
 'Nee, ga nu niet weg', antwoordde de koning, die z ó trots was een onderdaan te hebben. 'Ga niet 
 weg, ik maak je minister!' 
-- Minister waarvan? 
-- Van, eh, justitie. 
-- Maar er valt hier over niemand te oordelen! 
+— Minister waarvan? 
+— Van, eh, justitie. 
+— Maar er valt hier over niemand te oordelen! 
 'Dat weet je niet', zei de koning. 'Ik ben mijn koninkrijk nog niet rond geweest. Ik ben héél oud, 
 ruimte voor een koets heb ik niet en lopen is me te vermoeiend.' 
 'O, maar ik heb het allang gezien', zei de kleine prins en boog zich voorover om nog eens te kijken 
 aan de andere kant van de planeet. 
-- Daar is ook niemand. 
+— Daar is ook niemand. 
 'Dan zal je dus over jezelf oordelen', antwoordde de koning. 'Dat is het moeilijkste. Het is veel 
 moeilijker over jezelf te oordelen dan over anderen. Als het je lukt om een juist oordeel over jezelf te 
 hebben, dan heb je de ware wijsheid gevonden.' 
-- Maar ik kan best ergens anders over mezelf oordelen - daarvoor hoef ik hier niet te wonen. 
+— Maar ik kan best ergens anders over mezelf oordelen - daarvoor hoef ik hier niet te wonen. 
 'Hm, hm!' zei de koning, 'ik geloof dat er ergens op mijn planeet een oude rat huist. Ik hoor hem ‘s 
 nachts. Die zou je van tijd tot tijd ter dood kunnen veroordelen. Dan hangt zijn leven af van jouw 
 rechtvaardigheid. Maar dan schenk je hem iedere keer genade om hem te sparen. We hebben er 
@@ -443,7 +452,7 @@ maar één.'
 'Ik veroordeel niet graag ter dood', zei de kleine prins, 'en ik geloof heus dat ik nu opstap.' 
 'Nee', zei de koning. Maar toen de kleine prins zich klaar had gemaakt, wilde hij de oude vorst 
 geen verdriet doen: 
-- Als Uwe Majesteit stipt gehoorzaamd wil worden, zou zij mij een redelijk bevel kunnen geven. Zij 
+— Als Uwe Majesteit stipt gehoorzaamd wil worden, zou zij mij een redelijk bevel kunnen geven. Zij 
 zou mij kunnen bevelen binnen de minuut te vertrekken, bijvoorbeeld. Ik geloof wel, dat de 
 omstandigheden gunstig zijn... 
 Toen er geen antwoord kwam, aarzelde de kleine prins nog even en koos tenslotte met een zucht 
@@ -451,6 +460,7 @@ het luchtruim.
 'Ik benoem je tot ambassadeur', riep de koning hem toen haastig na en het gezag straalde van 
 hem af... 
 'Grote mensen zijn toch wel vreemd', zei de kleine prins tot zichzelf onder de reis. 
+
 //11     —   De tweede planeet werd bewoond door een ijdeltuit. 
 'Aha, nu komt er een bewonderaar op bezoek!' riep de ijdeltuit al van verre toen hij de kleine prins 
 zag aankomen. Immers voor ijdele mensen zijn alle anderen bewonderaars. 
@@ -466,14 +476,15 @@ Toen dat zo vijf minuten geduurd had, kreeg de kleine prins er genoeg van: 'En w
 om de hoed te laten vallen?' zei hij. Maar de ijdeltuit hoorde hem niet eens; ijdeltuiten luisteren 
 alleen als ze in de lucht worden gestoken. 
 'Bewonder je me heus erg?' vroeg hij aan het prinsje. 
-- Wat is dat: bewonderen? 
-- Bewonderen betekent erkennen, dat ik de mooiste, de best geklede, de rijkste en de 
+— Wat is dat: bewonderen? 
+— Bewonderen betekent erkennen, dat ik de mooiste, de best geklede, de rijkste en de 
 verstandigste man op de planeet ben. 
-- Maar je bent helemaal alleen op de planeet! 
-- Doe me een plezier en bewonder me toch! 
+— Maar je bent helemaal alleen op de planeet! 
+— Doe me een plezier en bewonder me toch! 
 'Goed, ik bewonder je', zei de kleine prins, terwijl hij zijn schouders een beetje ophaalde, 'maar wat 
 kan het je eigenlijk schelen?' En toen ging hij weer verder. 'De grote mensen zijn toch wel 
 wonderlijk', zei hij tegen zichzelf, onder de reis. 
+
 //12     —   De volgende planeet werd bewoond door een dronkaard. Dit werd een kort bezoekje maar het 
 stemde de kleine prins heel bedroefd. 
 'Wat doe je daar?' zei hij tot de dronkaard, die hij stil vond zitten bij een verzameling lege flessen en 
@@ -487,15 +498,16 @@ een verzameling volle flessen.
 'Ik schaam me dat ik drink', besloot de dronkaard en zei verder niets meer. 
 En verslagen ging de kleine prins verder. 'Grote mensen zijn toch wel héél wonderlijk', zei hij bij 
 zichzelf onder de reis. 
+
 //13     —   De vierde planeet was van een zakenman. Die meneer had het zo druk, dat hij zelfs niet opkeek bij 
 de komst van de kleine prins. 
 'Goede morgen', zei deze, 'uw sigaret is uitgegaan.' 
-- Drie en twee is vijf. Vijf en zeven twaalf. Twaalf plus drie vijftien. Vijftien en zeven tweeëntwintig. 
+— Drie en twee is vijf. Vijf en zeven twaalf. Twaalf plus drie vijftien. Vijftien en zeven tweeëntwintig. 
 Tweeëntwintig plus zes achtentwintig. Geen tijd om hem weer aan te steken. Zesentwintig plus vijf is 
 eenendertig. Oef! Dat is dus vijfhonderd en een miljoen, zeshonderd tweeëntwintigduizend 
 zevenhonderd eenendertig. 
-- Vijfhonderd miljoen waarvan? 
-- Hé? O, ben je er nog? Vijfhonderd en een miljoen... waarvan ook weer,... ik ben het vergeten... Ik 
+— Vijfhonderd miljoen waarvan? 
+— Hé? O, ben je er nog? Vijfhonderd en een miljoen... waarvan ook weer,... ik ben het vergeten... Ik 
 heb het zo druk! Ik ben een ernstig mens. Ik doe niet aan flauwheden. Twee en vijf is zeven... 
 'Vijfhonderd en een miljoen waarvan?' herhaalde de kleine prins, die altijd een eenmaal gestelde 
 vraag volhield. 
@@ -505,52 +517,52 @@ lucht kwam vallen. Hij maakte een afgrijselijk lawaai en ik vergiste me vier kee
 tweede keer was elf jaar geleden door een aanval van rheumatiek. Ik krijg niet genoeg beweging. 
 Ik heb geen tijd voor wandelingetjes - daarvoor ben ik te ernstig. De derde keer, dat is nu! Ik zei dus 
 vijfhonderd en één miljoen… 
-- Miljoen waarvan? 
+— Miljoen waarvan? 
 De zakenman begreep dat hij er niet aan ontkwam. 
-- Miljoen van die kleine dingetjes, die je soms in de lucht ziet. 
-- Vliegen? 
-- Nee, nee, ze glimmen. 
-- Bijen? 
-- Och nee, die kleine gouden dingetjes, waar nietsnutten van gaan dromen. Maar ik ben een 
+— Miljoen van die kleine dingetjes, die je soms in de lucht ziet. 
+— Vliegen? 
+— Nee, nee, ze glimmen. 
+— Bijen? 
+— Och nee, die kleine gouden dingetjes, waar nietsnutten van gaan dromen. Maar ik ben een 
 verstandig man! Ik heb geentijd om te dromen. 
-- O, de sterren? 
-- Ja juist, sterren. 
-- En wat doe je met vijfhonderd miljoen sterren? 
-- Vijfhonderd en één miljoen, zeshonderd tweeëntwintigduizend zevenhonderd eenendertig. Ik ben 
+— O, de sterren? 
+— Ja juist, sterren. 
+— En wat doe je met vijfhonderd miljoen sterren? 
+— Vijfhonderd en één miljoen, zeshonderd tweeëntwintigduizend zevenhonderd eenendertig. Ik ben 
 een ernstig en precies mens. 
-- En wat doe je met die sterren? 
-- Wat ik er mee doe? 
-- Ja. 
-- Niets, ik bezit ze. 
-- Bezit je de sterren? 
-- Ja. 
-- Maar ik heb ook al een koning gezien, die... 
-- Koningen bezitten niet. Zij 'regeren over'. Dat is iets héél anders. 
-- En wat heb je eraan de sterren te bezitten? 
-- Daar heb ik aan, dat ik rijk ben. 
-- En wat heb je eraan om rijk te zijn? 
-- Om weer sterren bij te kopen, als iemand ze vindt. 
+— En wat doe je met die sterren? 
+— Wat ik er mee doe? 
+— Ja. 
+— Niets, ik bezit ze. 
+— Bezit je de sterren? 
+— Ja. 
+— Maar ik heb ook al een koning gezien, die... 
+— Koningen bezitten niet. Zij 'regeren over'. Dat is iets héél anders. 
+— En wat heb je eraan de sterren te bezitten? 
+— Daar heb ik aan, dat ik rijk ben. 
+— En wat heb je eraan om rijk te zijn? 
+— Om weer sterren bij te kopen, als iemand ze vindt. 
 'Dat is net zo'n redenering als van mijn vriend de dronkaard', zei het prinsje in zichzelf. Maar hij 
 vroeg toch door: 'Hoe kun je sterren bezitten?' 
 'Van wie zouden ze dan wel zijn?' antwoordde de zakenman snibbig. 
-- Dat weet ik niet, van niemand. 
-- Dan zijn ze dus van mij, want ik heb er het eerst aan gedacht. 
-- Is dat genoeg? 
-- Ja zeker. Als jij een diamant vindt, die aan niemand toebehoort dan is die van jou. Als je een 
+— Dat weet ik niet, van niemand. 
+— Dan zijn ze dus van mij, want ik heb er het eerst aan gedacht. 
+— Is dat genoeg? 
+— Ja zeker. Als jij een diamant vindt, die aan niemand toebehoort dan is die van jou. Als je een 
 eiland vindt, dat van niemand is, is het van jou. Als jij het eerst iets bedenkt, neem je er patent op 
 en het idee is van jou. En zo bezit ik de sterren, omdat niemand voor mij eraan gedacht had ze te 
 bezitten. 
 'Ja, dat is waar', zei de kleine prins. 'En wat doe je ermee?' 
 'Ik beheer ze. Ik tel ze en tel ze nog eens over', zei de zakenman. 'Het is wel moeilijk, maar ik ben 
 een ernstig man.' De kleine prins was nog niet tevreden. 
-- Als ik een das bezit, kan ik die omslaan en meenemen. En als ik een bloem bezit kan ik haar 
+— Als ik een das bezit, kan ik die omslaan en meenemen. En als ik een bloem bezit kan ik haar 
 plukken en meenemen. Maar jij kunt de sterren niet plukken! 
-- Nee, maar ik kan ze op de bank zetten. 
-- Wat betekent dat? 
-- Dat betekent, dat ik een aantal van mijn sterren op een papiertje schrijf en dan stop ik dat 
+— Nee, maar ik kan ze op de bank zetten. 
+— Wat betekent dat? 
+— Dat betekent, dat ik een aantal van mijn sterren op een papiertje schrijf en dan stop ik dat 
 papiertje in een la en doe de la op slot. 
-- En is dat alles? 
-- Dat is genoeg. 
+— En is dat alles? 
+— Dat is genoeg. 
 'Dat is grappig', dacht de kleine prins. Het is nogal poëtisch maar niet zo ernstig. De kleine prins had 
 hele andere opvattingen dan grote mensen over wat ernstig is en wat niet. Hij zei weer: 'Ik bezit 
 een bloem die ik elke dag begiet, en drie vulkanen die ik elke week uitveeg. Want de dode 
@@ -558,6 +570,7 @@ vulkaan veeg ik ook - je kunt nooit weten. Voor mijn vulkanen en mijn bloem is h
 bezit. Maar jij hebt voor de sterren geen nut...' De zakenman deed zijn mond open, maar wist geen 
 antwoord en de kleine prins trok weer verder. De grote mensen zijn toch wel heel wonderlijk, zei hij 
 zo maar tegen zichzelf onderweg. 
+
 //14     —   De vijfde planeet was heel bijzonder. Het was de kleinste van allen. Er was maar net genoeg ruimte 
 voor een lantaarn en een lantaarnopsteker. De kleine prins begreep maar niet waarvoor een 
 lantaarn en een opsteker wel konden dienen ergens in het luchtruim op een planeet zonder huis of 
@@ -569,25 +582,25 @@ omdat het zo mooi is.'
 Bij zijn aankomst op de planeet groette hij de lantaarnopsteker eerbiedig: 'Goede morgen. 
 Waarom heb je zojuist de lantaarn uitgedaan?' 
 'Dat is voorschrift', antwoordde de lantaarnopsteker. 'Goede morgen.' 
-- Wat is dat, een voorschrift? 
+— Wat is dat, een voorschrift? 
 'Nou, dat ik mijn lantaarn moet doven. Goedenavond.' En hij stak hem weer aan. 
-- Maar waarom steek je hem nu weer aan? 
+— Maar waarom steek je hem nu weer aan? 
 'Dat is voorschrift', antwoordde de opsteker. 
 'Ik begrijp er niets van', zei de kleine prins. 
-- Daar is niets aan te begrijpen. Voorschrift is voorschrift. Goede morgen. 
+— Daar is niets aan te begrijpen. Voorschrift is voorschrift. Goede morgen. 
 En hij doofde zijn lantaarn weer. Toen veegde hij zich het voorhoofd met een roodgeruite zakdoek. 
-- Het is een verschrikkelijk beroep. Vroeger ging het nog. 's Morgens deed ik de lantaarn uit en 's 
+— Het is een verschrikkelijk beroep. Vroeger ging het nog. 's Morgens deed ik de lantaarn uit en 's 
 avonds weer aan. De rest van de dag kon ik rusten en de rest van de nacht kon ik slapen... 
-- En zijn de voorschriften dan na die tijd veranderd? 
-- Nee, de voorschriften niet. Dat is juist de hele ellende. De planeet is ieder jaar vlugger gaan 
+— En zijn de voorschriften dan na die tijd veranderd? 
+— Nee, de voorschriften niet. Dat is juist de hele ellende. De planeet is ieder jaar vlugger gaan 
 draaien en de voorschriften zijn niet veranderd! 
 'En verder?' vroeg de kleine prins. 
-- Nu komt ze in één minuut rond en ik heb geen seconde rust. Eenmaal per minuut moet ik de 
+— Nu komt ze in één minuut rond en ik heb geen seconde rust. Eenmaal per minuut moet ik de 
 lantaarn aan en uitdoen! 
-- Dat is grappig! Dus bij jou duren de dagen een minuut! 
+— Dat is grappig! Dus bij jou duren de dagen een minuut! 
 'Helemaal niet grappig', zei de lantaarnopsteker. 'We staan nu al een maand samen te praten.' 
-- Een maand? 
-- Ja, dertig minuten, dertig dagen! Goedenavond. 
+— Een maand? 
+— Ja, dertig minuten, dertig dagen! Goedenavond. 
 En hij stak zijn lantaarn weer aan. De kleine prins keek hem aan en die lantaarnopsteker die zich zo 
 trouw aan de voorschriften hield, beviel hem wel. Hij dacht terug aan de zonsondergang die hij 
 vroeger opzocht door zijn stoel te verschuiven. Hij wilde zijn vriend helpen: 'Weet je... ik ken een 
@@ -606,6 +619,7 @@ zuchtte van spijt en zei tot zichzelf: 'Dit is de enige, waarmee ik bevriend had
 zijn planeet is heus te klein. We hadden er nooit met zijn tweeën kunnen wonen...' De kleine prins 
 durfde zichzelf niet bekennen, dat hij zo'n spijt had over de gezegende planeet met haar 
 veertienhonderdveertig zonsondergangen in vierentwintig uur. 
+
 //15     —   De zesde planeet was wel tien keer zo groot en werd bewoond door een oude Meneer, die dikke 
 boeken schreef. 
 'Hé, daar komt een ontdekkingsreiziger!' riep hij uit, toen hij de kleine prins zag. Deze ging op tafel 
@@ -613,37 +627,37 @@ zitten en blies een beetje uit. Hij had al zoveel gereisd!
 'Waar kom je vandaan?' zei de oude Meneer. 
 'Wat is dat voor een dik boek?' zei het prinsje, 'en wat doet u hier?' 
 'Ik ben aardrijkskundige', zei de oude Meneer. 
-- Wat is dat? 
-- Dat is een geleerde, die weet waar de zeeën zijn en de steden, de bergen en de woestijnen. 
+— Wat is dat? 
+— Dat is een geleerde, die weet waar de zeeën zijn en de steden, de bergen en de woestijnen. 
 'Dat is heel interessant', zei de kleine prins. 'Dat is nu eindelijk een echt vak!' En hij keek eens om zich 
 heen over de planeet van de aardrijkskundige. Hij had nog nooit zo'n statige planeet gezien. 'Uw 
 planeet is erg mooi, zijn er oceanen?' 
 'Dat kan ik niet weten', zei de aardrijkskundige. 
 'Oh!' (De kleine prins was teleurgesteld). 'En bergen?' 
 'Dat kan ik niet weten', zei de aardrijkskundige. 
-- En steden, rivieren en woestijnen? 
+— En steden, rivieren en woestijnen? 
 'Dat kan ik ook niet weten', zei de aardrijkskundige! 
-- Maar u bent aardrijkskundige! 
-- Ja zeker, dat is ook zo, maar ik ben geen ontdekkingsreiziger. Ik heb groot gebrek aan 
+— Maar u bent aardrijkskundige! 
+— Ja zeker, dat is ook zo, maar ik ben geen ontdekkingsreiziger. Ik heb groot gebrek aan 
 ontdekkingsreizigers. Een aardrijkskundige gaat niet zelf de steden, rivieren, bergen, zeeën, 
 oceanen en woestijnen tellen. Hij is te belangrijk om rond te drentelen. Hij blijft in zijn studeerkamer 
 en daar ontvangt hij de ontdekkingsreizigers. En als hij de reisverhalen van één van hen belangrijk 
 vindt, laat de aardrijkskundige een onderzoek instellen naar het goede gedrag van de 
 ontdekkingsreiziger. 
-- Waarom moet dat? 
-- Omdat een leugenachtige ontdekkingsreiziger rampzalig zou zijn voor de aardrijkskundeboekjes. 
+— Waarom moet dat? 
+— Omdat een leugenachtige ontdekkingsreiziger rampzalig zou zijn voor de aardrijkskundeboekjes. 
 En ook een ontdekkingsreiziger die te veel zou drinken. 
 'Hoe dan!' zei de kleine prins. 
-- Omdat dronkaards dubbel zien en dan zou de aardrijkskundige twee bergen optekenen terwijl er 
+— Omdat dronkaards dubbel zien en dan zou de aardrijkskundige twee bergen optekenen terwijl er 
 maar een was. 
 'Ik ken iemand, die een heel slecht ontdekkingsreiziger zou zijn', zei het kleine prinsje. 
-- Dat is heel goed mogelijk. Dus als het gedrag van de ontdekkingsreiziger behoorlijk blijkt, stelt men 
+— Dat is heel goed mogelijk. Dus als het gedrag van de ontdekkingsreiziger behoorlijk blijkt, stelt men 
 een onderzoek naar zijn ontdekking in. 
-- Gaan ze dan kijken? 
-- Nee, dat is te ingewikkeld. Maar men vraagt de ontdekkingsreiziger om bewijzen. Als er 
+— Gaan ze dan kijken? 
+— Nee, dat is te ingewikkeld. Maar men vraagt de ontdekkingsreiziger om bewijzen. Als er 
 bijvoorbeeld sprake is van een grote berg, eist men dat bij er grote stenen mee vandaan brengt. 
 Toen raakte de aardrijkskundige plotseling in opwinding. 
-- Maar jij komt van ver! Jij bent ontdekkingsreiziger! Beschrijf me je planeet eens. 
+— Maar jij komt van ver! Jij bent ontdekkingsreiziger! Beschrijf me je planeet eens. 
 En de aardrijkskundige sloeg zijn dikke boek open en sleep zijn potlood. Verhalen van 
 ontdekkingsreizigers worden eerst met potlood opgetekend. Pas als de ontdekkingsreiziger 
 bewijzen heeft geleverd schrijft men ze met inkt. 
@@ -651,11 +665,11 @@ bewijzen heeft geleverd schrijft men ze met inkt.
 'Och!' zei het kleine prinsje, 'het is daar bij mij niet erg interessant. Het is maar een kleine planeet. Ik 
 heb drie vulkanen, twee werkende en een dode. Maar je kunt nooit weten.' 
 'Nee, je kunt nooit weten', zei de aardrijkskundige. 
-- Ik heb ook een bloem. 
+— Ik heb ook een bloem. 
 'Bloemen noteren wij niet', zei de aardrijkskundige. 
-- Waarom niet? Dat is juist het mooiste. 
-- Omdat bloemen kortstondig zijn. 
-- Wat betekent dat, kortstondig? 
+— Waarom niet? Dat is juist het mooiste. 
+— Omdat bloemen kortstondig zijn. 
+— Wat betekent dat, kortstondig? 
 'Aardrijkskundeboeken', zei de aardrijkskundige, 'zijn de kostbaarste boeken ter wereld. Ze raken 
 nooit uit de tijd. Het gebeurt maar zelden dat een berg van plaats verandert of dat een oceaan 
 leeg loopt. Wij beschrijven eeuwige dingen.' 
@@ -665,14 +679,15 @@ leeg loopt. Wij beschrijven eeuwige dingen.'
 alleen de berg van belang en die verandert niet.' 
 'Maar wat betekent nu 'kortstondig'?' herhaalde het prinsje, dat altijd volhield als hij eenmaal een 
 vraag gesteld had. 
-- Het betekent 'bedreigd met spoedige ondergang'. 
-- Wordt mijn bloem dan bedreigd met spoedige ondergang? 
-- Ja zeker. 
+— Het betekent 'bedreigd met spoedige ondergang'. 
+— Wordt mijn bloem dan bedreigd met spoedige ondergang? 
+— Ja zeker. 
 'Mijn bloem is kortstondig', zei het prinsje in zichzelf, 'en ze heeft maar vier doornen als bescherming 
 tegen de hele wereld! En ik heb haar helemaal alleen thuis gelaten!' Dat was zijn eerste opwelling 
 van spijt. Maar hij vatte weer moed: 'Wat raadt u mij aan om te gaan bezoeken?' vroeg hij. 
 'De planeet Aarde', antwoordde de aardrijkskundige, 'die staat gunstig bekend...' 
 En de kleine prins reisde verder en dacht aan zijn bloem. 
+
 //16     —   De zevende planeet was dus de Aarde. De Aarde is niet zo maar een willekeurige planeet! Zij telt 
 honderdenelf koningen (waaronder niet te vergeten de negerkoningen), zevenduizend 
 aardrijkskundigen, negenhonderdduizend zakenmensen, zeveneneenhalf miljoen dronkaards, 
@@ -689,6 +704,7 @@ Vervolgens die van Zuid-Amerika, daarna van Noord-Amerika. En nooit vergisten zi
 moment van opkomen. Het was een groots schouwspel. Alleen de enige lantaarnopsteker op de 
 Noordpool en zijn collega op de Zuidpool hadden een lui en gemakkelijk bestaan. Die werkten 
 maar twee keer per jaar. 
+
 //17     —   Als iemand erop uit is om geestig te zijn, gebeurt het wel eens dat hij een beetje jokt. Zo ben ik wel 
 wat buiten mijn boekje gegaan met mijn beschrijving van de lantaarnopstekers. Op die manier zou 
 ik van onze planeet een verkeerd idee kunnen geven als je haar niet kent. De mensen nemen 
@@ -729,6 +745,7 @@ De kleine prins antwoordde niets. 'Ik heb met je te doen: je bent zo zwak en dan
 Aarde. Ik kan je wel eens helpen als je erg naar je planeet verlangt. Ik kan...' 
 'O, ik begrijp je heel goed', zei de kleine prins, 'maar waarom spreek je altijd in raadselen?' 
 'Ik los alle raadsels op', zei de slang. En toen zwegen ze beiden. 
+
 //18     —   De kleine prins trok de woestijn door en kwam één enkele bloem tegen. Een bloem met drie 
 bloemblaadjes, een bloempje van niets... 
 'Goede morgen', zei de kleine prins. 
@@ -739,6 +756,7 @@ zes of zeven. Die heb ik jaren geleden eens gezien. Maar je weet nooit waar je z
 wind jaagt ze in het rond. Ze hebben geen wortels, dat is erg lastig voor ze.' 
 'Dág', zei de kleine prins. 
 'Dag', zei de bloem. 
+
 //19     —   De kleine prins klom bovenop een hoge berg. De enige bergen die hij kende waren zijn drie 
 vulkanen, die niet hoger reikten dan zijn knie. En de dode vulkaan gebruikte hij als krukje om op te 
 zitten. 
@@ -753,6 +771,7 @@ mensen zien.' Maar hij zag niets anders dan scherpe rotspunten.
 Wat een rare planeet! dacht hij toen. Helemaal dor en puntig en zout. En de mensen hebben 
 geen fantasie. Ze praten gewoon na wat men hun voorzegt... Denk dan eens aan mijn bloem: die 
 sprak altijd het eerst. 
+
 //20     —   Maar toen de kleine prins lang gelopen had door het zand, de rotsen en de sneeuw, ontdekte hij 
 eindelijk een weg. En wegen voeren altijd naar de mensen. 
 'Goede morgen', zei hij. Het was een tuin met bloeiende rozen. 
@@ -768,6 +787,7 @@ nog: Ik vond mezelf nog wel zo rijk met die ene bloem, en het is maar een doodge
 roos en mijn drie vulkanen die niet hoger reiken dan mijn knie en waarvan er een misschien voor 
 goed is uitgedoofd - met dat al ben ik toch niet zo'n geweldige prins. En hij ging in het gras liggen 
 en huilde. 
+
 //21     —   En toen verscheen de vos. 
 'Goede morgen', zei de vos. 
 'Goede morgen', zei de kleine prins beleefd, en hij draaide zich om maar zag niets. 
@@ -793,11 +813,11 @@ gemaakt...'
 'Dat is best mogelijk', zei de vos. 'Men ziet van alles op de aarde...' 
 'O, maar dit is niet op de aarde.' 
 De vos keek erg nieuwsgierig: 'Op een andere planeet?' 
-- Ja. 
-- Zijn daar ook jagers, op die planeet? 
-- Nee. 
-- Dat is geweldig! En kippen? 
-- Nee. 
+— Ja. 
+— Zijn daar ook jagers, op die planeet? 
+— Nee. 
+— Dat is geweldig! En kippen? 
+— Nee. 
 'Niets is volmaakt', zuchtte de vos. Maar de vos ging door met zijn uitlegging: 'Mijn leven is eentonig. 
 Ik jaag kippen en de mensen jagen mij. Alle kippen lijken op elkaar en alle mensen lijken op elkaar. 
 Dus verveel ik me wel een beetje. Maar als jij me tam maakt, dan wordt mijn leven vol zon. Dan ken 
@@ -860,6 +880,7 @@ onthouden.
 je blijft altijd verantwoordelijk voor wat je tam hebt gemaakt. Je bent verantwoordelijk voor je 
 roos...' 
 'Ik ben verantwoordelijk voor mijn roos', zei de kleine prins om het goed te onthouden. 
+
 //22     —   'Goedendag', zei de kleine prins. 
 'Goedendag,' zei de wisselwachter. 
 'Wat doe jij hier?' vroeg de kleine prins. 
@@ -880,6 +901,7 @@ kinderen drukken hun neus plat tegen de ruit.'
 'Kinderen alleen weten, wat ze zoeken,' zei de kleine prins. 'Ze verdoen hun tijd aan een pop van 
 oude lappen en die wordt dan heel belangrijk. Ze huilen als de pop hun wordt afgenomen...' 
 'Die zijn dan goed af', zei de wisselwachter. 
+
 //23     —   'Goedendag', zei de kleine prins. 
 'Goedendag', zei de koopman. Hij verkocht uitstekende dorstlessende pillen. Men slikt eens in de 
 week een pil en voelt nooit meer behoefte aan drinken. 
@@ -890,6 +912,7 @@ drieënvijftig minuten in de week.'
 'Daar doe je mee wat je wilt...' 
 'Als ik drieënvijftig minuten over had', dacht het prinsje bij zichzelf, 'dan liep ik heel rustig naar een 
 bron...' 
+
 //24     —   Het was al de achtste dag van mijn oponthoud in de woestijn en ik had naar het verhaal van die 
 koopman geluisterd onder het opdrinken van de laatste druppel uit mijn watervoorraad. 
 'Ach', zei ik tegen het prinsje, 'ik vind je reisherinneringen erg aardig, maar ik ben nog niet klaar met 
@@ -933,6 +956,7 @@ aangrijpt bij die kleine slapende prins, is zijn trouw aan een bloem, het beeld 
 binnenin hem straalt, zelfs in zijn slaap - als de vlam van een lamp...' En ik vond hem nog brozer. 
 Lampen moeten goed beschut worden: één windvlaag kan ze uitwaaien... En terwijl ik zo liep 
 ontdekte ik de put, bij het aanbreken van de dag. 
+
 //25     —   'De mensen', zei de kleine prins, 'kruipen in sneltreinen, maar ze weten niet meer wat ze zoeken. Ze 
 maken zich druk en draaien in een kring rond.' En hij voegde er aan toe: 'Het is de moeite niet 
 waard...' 
@@ -986,6 +1010,7 @@ betekent het toch 'Ja' niet waar?
 Maar hij antwoordde me: 'Nu moet je weer aan het werk. Je moet terug naar je machine.' 
 'Ik wacht hier. Kom morgenavond terug...' Maar gerust was ik niet. Ik dacht aan de vos. Het kan wel 
 eens op tranen uitlopen als men tam is gemaakt. 
+
 //26     —   Naast de put stond een oude bouwvallige muur. Toen ik de volgende avond van mijn werk kwam, 
 zag ik al uit de verte mijn kleine prins op de muur zitten met bengelende benen. En ik hoorde hem 
 spreken: 'Weet je het dan niet meer?' zei hij. Dit is niet precies de plaats. Een andere stem gaf zeker 
@@ -1025,19 +1050,19 @@ Maar hij zei: 'Vannacht is het een jaar geleden. Dan staat mijn ster precies bov
 verleden jaar gevallen ben.' 
 'Kereltje', zei ik, 'is het niet alles een boze droom, je afspraak met de slang en die ster...' 
 Maar hij beantwoordde mijn vraag niet en zei: 'Het belangrijkste kun je niet zien... ja zo is het... 
-- Net als met de bloem. Als je van een bloem houdt die op een ster woont, dan is het heerlijk om 's 
+— Net als met de bloem. Als je van een bloem houdt die op een ster woont, dan is het heerlijk om 's 
 nachts naar de hemel te kijken - dan zijn alle sterren met bloemen versierd. 
-- Ja zeker... 
-- Net als met het water. Het water waar je mij van liet drinken was als muziek - dat kwam van de 
+— Ja zeker... 
+— Net als met het water. Het water waar je mij van liet drinken was als muziek - dat kwam van de 
 katrol en het touw... weet je nog wel... hoe lekker het was. 
-- Ja zeker... 
-- Je moet 's nachts naar de sterren kijken. De mijne is te klein om je te wijzen waar ze is. Dat is ook 
+— Ja zeker... 
+— Je moet 's nachts naar de sterren kijken. De mijne is te klein om je te wijzen waar ze is. Dat is ook 
 beter zo. Voor jou is dan mijn ster één van de vele sterren. Je zult het prettig vinden alle sterren te 
 bekijken... Alle sterren zullen je vrienden zijn... En ik zal je ook nog iets geven. 
 Hij lachte weer. 
-- Och kereltje, kereltje wat hoor ik je graag lachen! 
-- Dat is juist mijn cadeau... net als het water... Wat bedoel je? 
-- Voor mensen hebben de sterren een verschillende betekenis. Voor sommige mensen die veel 
+— Och kereltje, kereltje wat hoor ik je graag lachen! 
+— Dat is juist mijn cadeau... net als het water... Wat bedoel je? 
+— Voor mensen hebben de sterren een verschillende betekenis. Voor sommige mensen die veel 
 reizen dienen de sterren als gids. Voor anderen zijn het alleen maar lichtjes. Weer anderen, de 
 geleerden, zien er grote vraagstukken in. Voor die zakenman die ik ken waren ze van goud. Maar 
 al die sterren zwijgen. Jij zult sterren hebben zoals niemand anders heeft... 
@@ -1081,6 +1106,7 @@ Hij zei: 'Zo... dat is alles.'
 Even aarzelde hij nog, stond toen op en deed een stap vooruit. Ik voelde me verstijven. Even was 
 er een gele flits bij zijn enkel. Hij bleef een ogenblik onbeweeglijk staan. Hij gilde niet maar viel 
 langzaam neer, als een boom. Er was zelfs geen geluid te horen, door het zand. 
+
 //27     —   En nu is het dus, o ja, alweer zes jaar geleden... Ik heb dit verhaal nog nooit verteld. Toen mijn 
 vrienden me terugzagen, waren ze erg blij dat ik nog leefde. Ik was verdrietig, maar ik zei maar dat 
 het vermoeidheid was... Nu ben ik een beetje getroost. Niet helemaal. Maar ik weet wel, dat hij 
