@@ -451,6 +451,7 @@ Kinderlijk spreidde ze haar doornen uit en zei toen: 'Blijf nu niet zo hangen; d
 Je hebt nu besloten te gaan. Ga dan ook.' 
 Want ze wilde niet dat hij haar zag huilen. Ze was een erg trotse bloem... 
 
+### Toets 2
 //10     —   Hij was in de buurt van de asteroïden 325, 326, 327, 328, 329 en 330. Die bezocht hij dus het eerst 
 om er een bezigheid te zoeken en om wat te leren. Op de eerste woonde een koning. Hij was in 
 purper en hermelijn gekleed en zat op een eenvoudige maar toch heel statige troon. 
@@ -941,6 +942,7 @@ van spijt. Maar hij vatte weer moed: 'Wat raadt u mij aan om te gaan bezoeken?' 
 'De planeet Aarde', antwoordde de aardrijkskundige, 'die staat gunstig bekend...' 
 En de kleine prins reisde verder en dacht aan zijn bloem. 
 
+### Toets 3
 //16     —   De zevende planeet was dus de Aarde. De Aarde is niet zo maar een willekeurige planeet! Zij telt 
 honderdenelf koningen (waaronder niet te vergeten de negerkoningen), zevenduizend 
 aardrijkskundigen, negenhonderdduizend zakenmensen, zeveneneenhalf miljoen dronkaards, 
@@ -1076,6 +1078,7 @@ roos en mijn drie vulkanen die niet hoger reiken dan mijn knie en waarvan er een
 goed is uitgedoofd - met dat al ben ik toch niet zo'n geweldige prins. En hij ging in het gras liggen 
 en huilde. 
 
+### Toets 4
 //21     —   En toen verscheen de vos. 
 
 'Goede morgen', zei de vos. 
